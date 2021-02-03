@@ -1,0 +1,1 @@
+# horoscope-tsotne-glurjidze
